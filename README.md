@@ -1,0 +1,2 @@
+# loyiha
+mustaqil ish
